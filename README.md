@@ -26,7 +26,7 @@ _CodeBegun, Madhapur, Hyderabad_
 ### 📫 Connect with Me
 
 - 🌐 LinkedIn: https://www.linkedin.com/in/manasa-03m2025/  
-- 📧 manasagovada2@gmail.com  
+- 📧 manasagovada52@gmail.com  
 - 📱 +91 8897749918  
 - 🐙 GitHub: https://github.com/manasa_govada
 
